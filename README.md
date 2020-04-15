@@ -1,1 +1,1 @@
-[Email](dalydanielle6@gmail.com)
+[Email](mailto:dalydanielle6@gmail.com)
